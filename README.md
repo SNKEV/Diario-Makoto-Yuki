@@ -1,1 +1,0 @@
-# Diario-Makoto-Yuki
